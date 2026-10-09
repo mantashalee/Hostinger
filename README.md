@@ -62,7 +62,6 @@ Using the [Hostinger 20% Off Coupon Code](https://www.hostinger.com?REFERRALCODE
 
 **Step 7: Complete Your Payment** — Choose your preferred payment method and finalize your purchase to activate your hosting plan.
 
-
 ## Hostinger Plans and Pricing 2026 (United States)
 
 | Plan | Discounted Price (Highest Month Plan) | Price After 20% Off Coupon | You Save |
